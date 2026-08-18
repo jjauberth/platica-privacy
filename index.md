@@ -87,4 +87,4 @@ Si tiene preguntas relacionadas con esta Política de Privacidad o con PlaTica, 
 
 **Pura Vida Solutions**
 
-Correo electrónico: **[COLOCA AQUÍ TU CORREO DE CONTACTO]**
+Correo electrónico: **jjauberth@outlook.com**
